@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nivaldosilva
 - 👀 I’m interested in learn
 - 🌱 I’m currently learning analysis and systems development
-- 💞️ I’m looking to collaborate on ... project
+- 💞️ I’m looking to collaborate on ... projects
 - 📫 How to reach me @Nivaldo_silva_filho 
 
 <!---
