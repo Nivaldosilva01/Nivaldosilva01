@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nivaldosilva
+- 👋 Hi, My anme is  @Nivaldosilva
 -🚀 Digital entrepreneur focused on practical and affordable solutions for the general public.
 💡 I create landing pages, lead generation strategies, and digital presence for local businesses and vehicle insurance projects.
 🛠️ Turning ideas into real products — one project at a time.
